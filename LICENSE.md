@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with premium Scanner for degen coin sniper bot | back-running & auto-sell, the #1 degen coin sniper bot. Includes back-running and auto-sell for a faster and
 
 
 
